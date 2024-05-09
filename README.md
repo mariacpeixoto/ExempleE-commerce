@@ -1,1 +1,1 @@
-# Exemple E-commerce Amiditi!
+# Exemple E-commerce Amition!
